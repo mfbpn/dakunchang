@@ -1,6 +1,6 @@
 # 大坤场官网地址
 
-最新地址：[dakunchang.com](https://dakunchang.com/#/register?code=jpdUgVJM)
+最新地址：[dakunchang.com]()
 
 ## 大坤场介绍
 
